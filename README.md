@@ -4,7 +4,7 @@
 ![gj_combined](https://user-images.githubusercontent.com/13174586/48262819-ec1eff00-e449-11e8-9b9f-6da6d1dc31c1.JPG)
 
 <br/><br/><br/> 
-#### Gulab Jamun with Splash Color
+#### Gulab Jamun with Splash Colors
 ![gj_combined2](https://user-images.githubusercontent.com/13174586/48262822-ede8c280-e449-11e8-8fcb-bb66125d132b.JPG)
 
 <br/><br/><br/> 
